@@ -1,1 +1,19 @@
-# The-Breaker-2
+https://github.com/Ivan12311999/The-Breaker-2/raw/refs/heads/main/A-Team_Ch.2.cbz
+https://github.com/Ivan12311999/The-Breaker-2/raw/refs/heads/main/A-Team_Ch.3.cbz
+https://github.com/Ivan12311999/The-Breaker-2/raw/refs/heads/main/A-Team_Ch.4.cbz
+https://github.com/Ivan12311999/The-Breaker-2/raw/refs/heads/main/A-Team_Ch.5.cbz
+https://github.com/Ivan12311999/The-Breaker-2/raw/refs/heads/main/A-Team_Ch.6.cbz
+https://github.com/Ivan12311999/The-Breaker-2/raw/refs/heads/main/A-Team_Ch.7.cbz
+https://github.com/Ivan12311999/The-Breaker-2/raw/refs/heads/main/A-Team_Ch.8.cbz
+https://github.com/Ivan12311999/The-Breaker-2/raw/refs/heads/main/A-Team_Ch.9.cbz
+https://github.com/Ivan12311999/The-Breaker-2/raw/refs/heads/main/A-Team_Ch.9.5.cbz
+https://github.com/Ivan12311999/The-Breaker-2/raw/refs/heads/main/A-Team_Ch.10.cbz
+https://github.com/Ivan12311999/The-Breaker-2/raw/refs/heads/main/A-Team_Ch.11.cbz
+https://github.com/Ivan12311999/The-Breaker-2/raw/refs/heads/main/A-Team_Ch.12.cbz
+https://github.com/Ivan12311999/The-Breaker-2/raw/refs/heads/main/A-Team_Ch.13.cbz
+https://github.com/Ivan12311999/The-Breaker-2/raw/refs/heads/main/A-Team_Ch.14.cbz
+https://github.com/Ivan12311999/The-Breaker-2/raw/refs/heads/main/A-Team_Ch.15.cbz
+https://github.com/Ivan12311999/The-Breaker-2/raw/refs/heads/main/A-Team_Ch.16.cbz
+https://github.com/Ivan12311999/The-Breaker-2/raw/refs/heads/main/A-Team_Ch.17.cbz
+https://github.com/Ivan12311999/The-Breaker-2/raw/refs/heads/main/A-Team_Ch.18.cbz
+https://github.com/Ivan12311999/The-Breaker-2/raw/refs/heads/main/A-Team_Ch.19.cbz
